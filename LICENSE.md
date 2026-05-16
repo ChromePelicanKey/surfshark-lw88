@@ -1,4 +1,4 @@
-
+Surfshark top App: server-switching & free-trial offers the most advanced Surfshark app, with server-switching and free-trial. Ideal for users who value privacy and security.
 
 
 
